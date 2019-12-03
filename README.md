@@ -1,12 +1,12 @@
-My name is ...
+My name is Amelia Sambone
 
-I'm ... years old.
+I'm 15 years old.
 
-I was born in ....
+I was born in May 11th 2004.
 
-My favorite color is ...
+My favorite color is yellow!
 
-My favorite 3 artist are ...
+My favorite 3 artist are Ben Platt, Johnathan Groff, Alex Boniello!
 
-On the weekends I like to ...
+On the weekends I like to Play with my cats, see musicals, and play minecraft.
 
